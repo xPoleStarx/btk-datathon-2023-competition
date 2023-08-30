@@ -1,1 +1,0 @@
-- [Seyfullah Korkmaz](https://github.com/xPoleStarx)
